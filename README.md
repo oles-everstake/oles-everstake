@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @oles-everstake
+- 👀 I’m business analyst
